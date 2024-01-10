@@ -23,10 +23,24 @@
 Technical Skill Enhancement<br>
 Community Participation<br>
 Project Execution<br>
-Self-Development<br>
-<sup>DETAILS ARE PRIVATE. . .</sup>
+Self-Development<br><br>
+DETAILS WIL FOLLOW AFTER ACHIEVEMENT . . .<br>
+DETAILS WILL BE PROVIDED BELOW AFTER THE ACHIEVEMENT . . .
 
 ---
+
+### Currently in the process of
+learning Java<br>
+increasing familiarity with IntelliJ and GitHub<br>
+setting up the 1 commit a day routine<br>
+. . . ⚙
+
+---
+
+### Outcomes and Destination
+
+---
+
 
   <h5>Gmail <a href="mailto:seooonggyu@gmail.com">seooonggyu@gmail.com</a></h5>
   <h5>Instagram <a href="https://www.instagram.com/seon8rx/">seon8rx</a></h5>
