@@ -24,7 +24,6 @@ Technical Skill Enhancement<br>
 Community Participation<br>
 Project Execution<br>
 Self-Development<br><br>
-DETAILS WIL FOLLOW AFTER ACHIEVEMENT . . .<br>
 DETAILS WILL BE PROVIDED BELOW AFTER THE ACHIEVEMENT . . .
 
 ---
